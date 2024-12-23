@@ -1,2 +1,2 @@
 # About me
-- 📫 How to reach me: matthew.haines@stvincent.edu
+- 📫 How to reach me: hainesmatthew12@gmail.com
